@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Discrete Mathmatics.
 - 💞️ I’m looking to collaborate on ???
 - 📫 How to reach me: (telephone number)@163.com
-- 😄 Pronouns: Sir Humphrey
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: Opera and logic?
 
 <!---
