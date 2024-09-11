@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Humphrey Plummer(Parody Account)
+- 👋 Hi, I’m Humphrey Plummer from China.
 - 👀 I’m interested in many! But not CS.(so sad)
 - 🌱 I’m currently learning Discrete Mathmatics and some about Mathmatical Modeling.
 - 💞️ I’m looking to collaborate on ???
