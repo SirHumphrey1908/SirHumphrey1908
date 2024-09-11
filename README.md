@@ -1,6 +1,6 @@
-- 👋 Hi, I’m Mastero Karajan(Parody Account)
+- 👋 Hi, I’m Humphrey Plummer(Parody Account)
 - 👀 I’m interested in many! But not CS.(so sad)
-- 🌱 I’m currently learning Discrete Mathmatics.
+- 🌱 I’m currently learning Discrete Mathmatics and some about Mathmatical Modeling.
 - 💞️ I’m looking to collaborate on ???
 - 📫 How to reach me: (telephone number)@163.com
 - 😄 Pronouns: he/him
